@@ -1,5 +1,3 @@
-# whoopervillemc
-modpackstuff
 kekw lmao 69 sex number funny
 download curseforge
 go to my modpacks
